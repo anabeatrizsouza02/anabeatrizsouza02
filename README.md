@@ -8,6 +8,6 @@ Meu nome é Ana Beatriz
 
 - ## Você entrar em contato comigo 📫
 
-- beatrizsouzaana376@gmal.com
+- beatrizsouzaana376@gmail.com
 
 ![](https://media1.tenor.com/m/Q6rgr_3z9W0AAAAC/kiss.gif)
